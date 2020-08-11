@@ -1,4 +1,4 @@
-# Dmitry Kudryashov
+# DMITRY KUDRYASHOV
 
 **DOB:** 12/11/1982
 **Title:** Localization Program Manager
